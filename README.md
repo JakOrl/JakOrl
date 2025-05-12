@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Jakub Orlowski
+- 👀 I’m interested in Coding, Technlogy, Motorbikes and Gaming
+- 🌱 I’m currently learning Software Development  
+- 📫 How to reach me floofy_furk on Discord / 0832072013 / orlowskijakub22@gmail.com  

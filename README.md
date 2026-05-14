@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Jakub Orlowski
 - 👀 I’m interested in Coding, Technlogy, Motorbikes and Gaming
 - 🌱 I’m currently learning Software Development  
-- 📫 How to reach me:  +353 832072013 / jakub.orlowski@mymtu.ie / https://www.linkedin.com/in/jakorl
+- 📫 How to reach me: jakub.orlowski@mymtu.ie / https://www.linkedin.com/in/jakorl
